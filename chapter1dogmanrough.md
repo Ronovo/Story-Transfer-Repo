@@ -1,5 +1,4 @@
 
-![Cover Img](A Man And His Dog Chapter 1.png)
 
 **Chapter 1** 
 

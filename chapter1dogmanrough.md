@@ -1,6 +1,6 @@
 **Chapter 1** 
 
-*A Man and His Dog*
+***A Man and His Dog***
 
 Ronovo awoke to Tobi licking his face. A smile spread across it as he reached out to pet the bonedog.
 

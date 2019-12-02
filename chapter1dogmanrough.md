@@ -1,3 +1,6 @@
+
+	![alt text](A Man And His Dog Chapter 1.png)
+
 **Chapter 1** 
 
 ***A Man and His Dog***

@@ -16,7 +16,7 @@ Tobi's face never changed. Eyes blank, tongue hanging out, playing dumb.
 
 Tobi let out a low bark, as if voicing his protest. 
 
-"Must have been the ghosts, right?" he sarcasticly. 
+"Must have been the ghosts, right?" he quipped. 
 
 The blank look returned.
 

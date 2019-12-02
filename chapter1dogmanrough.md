@@ -47,3 +47,29 @@ There was a ridge to his right that he could run over. If there was no cover the
 Over the ridge, he could hear the Outlaws crest the ridge.
 
 "SKIMMERS!!!" A voice cried out. A skimmer screech pierced the night as they descended upon the group of surpised Outlaws.
+
+The screams continued for a few minutes, growing lower in volume the longer the fight went on. 
+
+Eventually, desert fell silent, except for the sound of Skimmer footsteps walking away, throughly satisfied with thier lastest meal. That's how life is on this planet. You never know if today is going to be your last day.
+
+He peeked over the ridge, and his eyes grew wide with wonderment as he surveyed all the dead. The sand was drenched in blood. Arms and legs lay scattered across the ground. A trail of blood lead to the ridge Ronovo had hidden upon. An Outlaw Swordsman had tried to crawl up the ridge, and had died halfway up. Ronovo ran over to the body, and quickly looted it. He had gone from rags to riches. 
+
+Not only did he have a shirt on his back, but he also had a weapon. The swordsman had been carrying a rusty horse chopper. It was better then nothing. He also got a bamboo hat, and a pair of sandals.
+
+He hopped from corpse to corpse, taking everything he could fit in his tiny backpack. As he was scavenged the battlefield, he heard a tiny whimper come out from underneat one of the bodies. It was a tiny bonedog pup. It was wounded, but it had played dead during the fight. A farmer's body had hidden it from the monsters.
+
+It let out a pathetic whimper, as it tried to stand up, but it's right front leg had been mangled. Ronovo, overcome with pity for the thing, took the bandage off the farmer's body, and patched the dog's foot up. 
+
+As he picked it up, it let out a happy bark, and it liked his face.
+
+"There ya go, little guy. What's your name?"
+
+*bark*
+
+"Hmmm. Tobi.....I like it. Hold on, little guy."
+
+He put Tobi on his shoulder, and started off back to the Outlaw camp, that would now be empty. 
+
+"Let's go rest up for the night."
+
+*bark, bark*

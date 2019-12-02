@@ -36,7 +36,7 @@ Inside was a loaf of bread, as well as 6 pieces of dried meat. He scarfed down t
 
 "I think I heard something over here!" a voice yelled close by. 
 
-With a deep breath in and out, Ronovo braced to sprint again. Peaking over the boulder, he saw an Outlaw Swordsman advancing towards him. Further off, the rest of his squad was advancing fast. He had to get out of here fast or he was toast.
+With a deep breath in and out, Ronovo braced to sprint again. Peaking over the boulder, he saw an Outlaw Swordsman advancing towards him. Further off, the rest of his squad was advancing fast. He had to get out of here or he was toast.
 
 As he took off, the swordsman yelled "I FOUND HIM!! EVERYONE, ON ME!". He could hear the footsteps speed up behind him as the swordsman began pursuit. 
 

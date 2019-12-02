@@ -2,7 +2,7 @@ Chapter 1
 
 A Man and His Dog
 
-Ronovo awoke to Tobi licking his face. A smile spread across his face as he reached out to pet the bonedog.
+Ronovo awoke to Tobi licking his face. A smile spread across it as he reached out to pet the bonedog.
 
 Through the opening in the roof, the morning sun bathed the house in light. Ronovo had found this house in the far corner of Bast when he had wandered here a few days ago. Most of the houses had been completely destroyed, but this one was still standing. Though it was in disarry, it had a roof, and it's position was advantageous. It was situatated in a canyon cutout, so there were walls on 3 sides. With one way in and out of town, he felt pretty safe sleeping there for a few days. 
 

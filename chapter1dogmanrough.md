@@ -35,3 +35,15 @@ Ronovo's lungs burned as he ran. He didn't hear any yelling behind him, and he b
 Inside was a loaf of bread, as well as 6 pieces of dried meat. He scarfed down the loaf of bread in seconds, then prepared to eat a piece of meat when a cry rung out across the desert.
 
 "I think I heard something over here!" a voice yelled close by. 
+
+With a deep breath in and out, Ronovo braced to sprint again. Peaking over the boulder, he saw an Outlaw Swordsman advancing towards him. Further off, the rest of his squad was advancing fast. He had to get out of here fast or he was toast.
+
+As he took off, the swordsman yelled "I FOUND HIM!! EVERYONE, ON ME!". He could hear the footsteps speed up behind him as the swordsman began pursuit. 
+
+With the headstart he had, Ronovo weaved over the massive sand mounds, hoping to lose his fate in the high ridges. As he crested another one, he stopped in his tracks. About 100 yards away were 3 massive Skimmers advancing in his direction. They had not seen him yet, but if he didn't act fast, they would be making a beeline towards him. He could not turn around, lest he face the wrath of the Outlaw Farmers. 
+
+There was a ridge to his right that he could run over. If there was no cover there, he would be screwed. However, there were a lot of Outlaws behind him, and the thought of robbing their dead bodies after they run into the Skimmers was too appetizing to pass up. Luckily, as he crested the ridge, he saw some more rocks he could hide behind. He hunkered down and waiting for the bloodshed to begin.
+
+Over the ridge, he could hear the Outlaws crest the ridge.
+
+"SKIMMERS!!!" A voice cried out. A skimmer screech pierced the night as they descended upon the group of surpised Outlaws.

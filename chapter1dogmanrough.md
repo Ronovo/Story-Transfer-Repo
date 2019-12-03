@@ -28,7 +28,27 @@ Tobi answered by barking enthusiastically.
 
 Opening the door, Ronovo was blasted by sand flying in at him. He didn't worry about the course sand getting everywhere. He didn't plan on coming back for a while. Stepping outside,he surveyed the town of Bast. He didn't know what caused the town to be destroyed, but whatever had caused this destruction was long gone. Most of the buildings had collapsed roofs. Ronovo had sifted through the rubble in some of them when he had first arrived, and had found a few pieces of dried meat. They ate like kings for 2 days after, but the town was now barren. If they didn't move on soon, there was a good chance he would die from starvation.
 
-He was very malnourished. Before the discovery of the meat, they had not seen food in 3 to 4 days. His existance was moment to moment. He didn't have time to ponder his past, nor plan for his future. His strength had withered away with his body, as did his memories. However, there are some memories that never fade
+He was very malnourished. Before the discovery of the meat, they had not seen food in 3 to 4 days. His existance was moment to moment. He didn't have time to ponder his past, nor plan for his future. His strength had withered away with his body, as did his memories. 
+
+Before he had taken more then 10 steps out of his front door, a Samurai squad approached him. Their leader hailed him.
+
+"...You look about ready for death's door, drifter...Emaciation, poverty...These things are illegal in Empire dominion, you know that?"
+
+Ronovo turned to him, and *cough* right in the Samurai's face.
+
+...
+
+They stared at each other
+
+...
+
+"Take this. Eat. And I suggest you lay low while you're in this place. Other Empire guards won't be so merciful if they find you like this". With a scoff, he walked off.
+
+When they were out of range, he started jumping up and down with glee. He had been given a Greenfruit, and a Loaf of Bread. "Look at our luck, Tobi! Breakfast time!"
+
+He set the Greenfruit on the ground for Tobi, but he turned his nose up at the vegetable. "Oh. so you are too good for that, huh? Then...here" He picked up the Greenfruit, and set the loaf of bread down. Tobi eagerly perked up, and ran over, slobbering the whole way. The loaf was gone in a single scarf. 
+
+And with that, they were off into the desert. They needed to find a town to sell their trinkets they had fond in the abandoned homes of Bast. These were the first steps of their greatest adventure.
 
 **************
 

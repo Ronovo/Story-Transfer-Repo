@@ -10,7 +10,7 @@ They had no weapons, while Ronovo had a rusted iron club as a side arm. His main
 
 They charged instead of running away. Ronovo took the one in the front, while Tobi attacked the one in the back.
 
-Tobi was taking massive damage out of the vagrants leg. The poor vagrant tried to crawl away, but Tobi grabbed him, and mawled him, so that he could not crawl anywhere. The vagrant fell unconscious, most likely from the pain.
+Tobi was taking massive damage out of the Vagrant's leg. The poor vagrant tried to crawl away, but Tobi grabbed him, and mauled him, so that he could not crawl anywhere. The vagrant fell unconscious, most likely from the pain.
 
 Ronovo, meanwhile, was not doing great. While far from losing, he had taken a few fists to the face that had hurt. For every hit he landed with his club, he got socked in the face. Tobi ran over to Ronovo, attacking the standing Vagrant. With Tobi taking the aggression, Ronovo broke away, and ran to the unconcious Vagrent. He quickly looted him, grabbing his Rag Skirt and Black Rag Shirt. 
 

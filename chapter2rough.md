@@ -58,7 +58,7 @@ They ran over to a corner by the gate. He proceeded to drop all the meat on the 
 
 Since he had no place to call home, and he wasn't hurting too bad from the fight earlier, he decided he would try to do some more scavaging. Luckily, he didn't have to wait long. As soon as he walked out of the gate, he saw a Skimmer off in the distance. He couldn't fight it on his own, but if he could lure it to the gate, having the guards kill it. He could then get its tusk to sell, and its meat as a treat for his friend. 
 
-Luckily, this Skimmer was hungry. It charged Ronovo as soon as he was seen. Ronovo hauled ass back to the gate. The Skimmer was gaining quickly, but he was able to outrun it. The plan went off without a hitch. Like clockwork, the guards ran out, and within 5 seconds, had made quick work of the beast. Ronovo ran over, looted it, then ran back to town. 
+This Skimmer was hungry. It charged Ronovo as soon as he was seen. Ronovo hauled ass back to the gate. The Skimmer was gaining quickly, but he was able to outrun it. The plan went off without a hitch. Like clockwork, the guards ran out, and within 5 seconds, had made quick work of the beast. Ronovo ran over, looted it, then ran back to town. 
 
 He stopped by Tobi, and threw him one of the pieces of raw Skimmer meat. Tobi eagerly ran over and woofed it down in three bites. Ronovo pet him. "Good job guarding the food. I am going to go sell these tusks real quick. Be right back!" After a quick trip to the tavern, he had sold off all the Skimmer tusks and had about 1000 cats to his name. So far, so good. 
 

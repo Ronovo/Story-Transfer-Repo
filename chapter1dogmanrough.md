@@ -97,3 +97,5 @@ He put Tobi on his shoulder, and started off back to the Outlaw camp, that would
 "Let's go rest up for the night."
 
 *bark, bark*
+
+[Continue to Chapter 2](https://github.com/Ronovo/Story-Transfer-Repo/blob/master/chapter2rough.md)

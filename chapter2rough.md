@@ -96,6 +96,6 @@ On the way back, he saW a severed human arm on the ground. It must have been lef
 
 As he got back into the city gates, He took the arm out of his backpack, and walked over to Tobi and the meat. He hid it behind his back quickly, so it would be a surpise. "Hey Tobi. You did sooooo good when I was gone. I see you didn't eat all of our meat. I brought you a little treat!"
 
-As he whipped out the arm from behind his back, Tobi started jumping up and down with happiness. ***BARK BARK...BARK BARK BARK***. He jumped up, and grabbed the arm of out Ronovo's hand. He ran off holding the arm in his mouth, playing with it, barking the whole way. He was the happiest bone dog in all of Stoat, maybe even the United Cities.
+As he whipped out the arm from behind his back, Tobi started jumping up and down with happiness. ***BARK BARK...BARK BARK BARK***. He jumped up, and grabbed the arm of out Ronovo's hand. He ran off holding the arm in his mouth, playing with it, barking the whole way. He was the happiest bonedog in all of Stoat, maybe even the United Cities.
 
 Ronovo left him to play while he finished up selling off the loot. At the end of the day, he had 2000 cats. "Not a bad little down payment on a beachside house", he thought. A smile grew on his face as he watched his best friend run around the city.

@@ -4,7 +4,7 @@
 
 ***Stoat***
 
-They had not made it to Stoat yet, but they had encountered a problem. Some starving vagrants had seen them and wanted to beat them up. However, they chose the wrong squad to fight with. 
+They had not made it to Stoat yet, but they had encountered a problem. Some starving Vagrants had seen them and wanted to beat them up. However, they chose the wrong squad to fight with. 
 
 They had no weapons, while Ronovo had a rusted iron club as a side arm. His main weapon, the Horse Chopper, had been pawned for food a few days ago. And of course, he had Tobi.
 

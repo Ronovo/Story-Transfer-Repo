@@ -38,11 +38,13 @@ First, he ran to the market. No one greeted him as he walked in. However, he hea
 
 The Boss perked up at this, finally coming into the land of the living. 
 
-"Watchya got there? A new slave? Give you 400 Cats for 'em"
+"Watchya got there? A new slave? Give you 400 Cats for 'em."
 
 "Sure, man. Whatever you wanna call 'em. Just give me the money."
 
-As he handed over the Vagrant, the Boss gave him 400 Cats. "Come to Master" he cackled. Ronovo watched as he threw him in a cage. He then bent down and started performing first aid on him. Two more guards ran over: One started bandaging the Vagrant, while the other started putting shackles on him. That's all he had to see. Money is money.
+As he handed over the Vagrant, the Boss gave him 400 Cats. "Come to Master" he cackled. Ronovo watched as the Boss threw the Vagrant in a cage. Boss then bent down and started performing first aid on him. Two more guards ran over: One started bandaging the Vagrant, while the other started putting shackles on him. That's all Ronovo had to see. Money is money.
+
+******
 
 He whistled, and Tobi came running. "Let's go get some food" he said, jingling his newly filled money sack. They ran towards the Tavern. As he walked in, he ran to the counter. "Excuse me, sir. I'd like to buy some food."
 
@@ -52,9 +54,9 @@ He whistled, and Tobi came running. "Let's go get some food" he said, jingling h
 
 ***BARK BARK*** Tobi exclaimed as he ran around in a circle. 
 
-They ran over to a corner by the gate. He proceeded to drop all the meet on the ground. Tobi ran over to him and started eating it. "Ok, boy. I want you to guard the meat. Don't let anyone take it, and you can have as much as you want!" He pet the dog on the head as the dog excitedly licked his hand.
+They ran over to a corner by the gate. He proceeded to drop all the meat on the ground. Tobi ran over to him and started eating it. "Ok, boy. I want you to guard the meat. Don't let anyone take it, and you can have as much as you want!" He pet the dog on the head as the dog excitedly licked his hand.
 
-Since he had no place to call home, and he wasn't hurting too bad from the fight earlier, he decided he would try to do some more scavaging. Luckily, he didn't have to wait long. As soon as he walked out of the gate, he saw a Skimmer off in the distance. He couldn't fight it on his own, but if he could lure it to the gate, haveing the guards kill it. He could then get its tusk to sell, and its meat as a treat for his friend. 
+Since he had no place to call home, and he wasn't hurting too bad from the fight earlier, he decided he would try to do some more scavaging. Luckily, he didn't have to wait long. As soon as he walked out of the gate, he saw a Skimmer off in the distance. He couldn't fight it on his own, but if he could lure it to the gate, having the guards kill it. He could then get its tusk to sell, and its meat as a treat for his friend. 
 
 Luckily, this Skimmer was hungry. It charged Ronovo as soon as he was seen. Ronovo hauled ass back to the gate. The Skimmer was gaining quickly, but he was able to outrun it. The plan went off without a hitch. Like clockwork, the guards ran out, and within 5 seconds, had made quick work of the beast. Ronovo ran over, looted it, then ran back to town. 
 
@@ -63,8 +65,6 @@ He stopped by Tobi, and threw him one of the pieces of raw Skimmer meat. Tobi ea
 He ran back once again to Tobi. "Let's go find some more fights, boy." he said, as he picked up the meat.
 
 ***Bark Bark Bark*** came the enthusiastic reply
-
-*******************************
 
 They set out, running around the perimeter of the city, looking for patrols out in the cool desert night. While they wandered, Ronovo thought about what he would be doing next. He didn't plan on staying in Stoat for the rest of his life. There is only so much scavaging he can do, and there did not seem to be any copper deposits he was seeing.
 

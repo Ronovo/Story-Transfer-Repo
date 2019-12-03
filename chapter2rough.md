@@ -58,11 +58,13 @@ They ran over to a corner by the gate. He proceeded to drop all the meat on the 
 
 Since he had no place to call home, and he wasn't hurting too bad from the fight earlier, he decided he would try to do some more scavaging. Luckily, he didn't have to wait long. As soon as he walked out of the gate, he saw a Skimmer off in the distance. He couldn't fight it on his own, but if he could lure it to the gate, having the guards kill it. He could then get its tusk to sell, and its meat as a treat for his friend. 
 
-This Skimmer was hungry. It charged Ronovo as soon as he was seen. Ronovo hauled ass back to the gate. The Skimmer was gaining quickly, but he was able to outrun it. The plan went off without a hitch. Like clockwork, the guards ran out, and within 5 seconds, had made quick work of the beast. Ronovo ran over, looted it, then ran back to town. 
+This Skimmer was hungry. It charged Ronovo as soon as he was seen, as he hauled ass back to the gate. The Skimmer was gaining quickly, but he was able to outrun it. The plan went off without a hitch. Like clockwork, the guards ran out, and within 5 seconds, had made quick work of the beast. Ronovo ran over, looted it, then ran back to town. 
 
 He stopped by Tobi, and threw him one of the pieces of raw Skimmer meat. Tobi eagerly ran over and woofed it down in three bites. Ronovo pet him. "Good job guarding the food. I am going to go sell these tusks real quick. Be right back!" After a quick trip to the tavern, he had sold off all the Skimmer tusks and had about 1000 cats to his name. So far, so good. 
 
-He ran back once again to Tobi. "Let's go find some more fights, boy." he said, as he picked up the meat.
+******
+
+He ran back, once again, to Tobi. "Let's go find some more fights, boy." he said, as he picked up the meat.
 
 ***Bark Bark Bark*** came the enthusiastic reply
 
@@ -80,11 +82,11 @@ He walked back towards the gate. They had made it to the gate on the other side 
 
 He ran off before he could get a *bark* in reply. He couldn't let the Skimmers get away. As he ran out of the gate, he started yelling at the Skimmers. "Hey, you ugly son of a bitch, OVER HERE!!!" One of them seemed to take notice of him, but every time it started running to him, it would back off. Maybe it saw the gate and wasn't willing to take the risk like it's brethern had. That was fair. 
 
-Luck was on his side. As he watched the Skimmers walk off, he saw a Slaver Caravan come up over the horizon. Both squads were on a collision course. He looked on and watched as the Caravan got torn to pieces. He only did what he needed to survive. Watching those that took slaves as a full time job get torn to pieces was pretty satisfying. He didn't have time to stare for long. He had to loot before the entire caravan was wiped out.
+Luck was on his side. As he watched the Skimmers walk off, he saw a Slaver Caravan come up over the horizon. Both squads were on a collision course. He looked on and watched as the Caravan got torn to pieces. He only did what he needed to survive. Watching those that took slaves as a full time job get massacred was pretty satisfying. He didn't have time to stare for long. He had to loot before the entire caravan was wiped out.
 
-He ran to the bodies, and started looting them as quickly as he could. However, in his rush, he wasn't paying attention. The Skimmer had destoryed the caravan, and now had his sights set on Ronovo. He tried to run, but all the loot he had grabbed was slowing him down. "Shit", he thought , "is this the end for me?"
+He ran to the bodies, and started looting them as quickly as he could. However, in his rush, he wasn't paying attention. The Skimmer had destoryed the caravan, and now had his sights set on Ronovo. He tried to run, but all the loot he had grabbed was slowing him down. "Is this the end for me?", he thought.
 
-As a last ditch effort, he dropped his backpack and all the loot in it. All the extra weight had been slowing him down, and with the extra boost of speed, he was just barely able to start pulling ahead of the monster. He could hear it lungeing at him as he ran. Luckily, he made it to the gates in time, and the guards made quick work of the Skimmer. 
+As a last ditch effort, he dropped his backpack and all the loot in it. All the extra weight had been slowing him down, and with the extra boost of speed, he was just barely able to start pulling ahead of the monster. He could hear it lunging at him as he ran. Luckily, he made it to the gates in time, and the guards made quick work of the Skimmer. 
 
 He ran back out of the gates, and looted the body. He then ran back out to the battlefield, and picked up all his loot he dropped. He had no clue how he got out of that skirmish alive, but he was glad he did.
 

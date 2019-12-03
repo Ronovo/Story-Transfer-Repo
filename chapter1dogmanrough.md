@@ -28,7 +28,7 @@ The blank look returned.
 
 Tobi answered by barking enthusiastically.
 
-Opening the door, Ronovo was blasted by sand flying in at him. He didn't worry about the course sand getting everywhere. He didn't plan on coming back for a while. Stepping outside,he surveyed the town of Bast. He didn't know what caused the town to be destroyed, but whatever had caused this destruction was long gone. Most of the buildings had collapsed roofs. Ronovo had sifted through the rubble in some of them when he had first arrived, and had found a few pieces of dried meat. They ate like kings for 2 days after, but the town was now barren. If they didn't move on soon, there was a good chance he would die from starvation.
+Opening the door, Ronovo was blasted by sand flying in at him. He didn't worry about the coarse sand getting everywhere. He didn't plan on coming back for a while. Stepping outside,he surveyed the town of Bast. He didn't know what caused the town to be destroyed, but whatever had caused this destruction was long gone. Most of the buildings had collapsed roofs. Ronovo had sifted through the rubble in some of them when he had first arrived, and had found a few pieces of dried meat. They ate like kings for 2 days after, but the town was now barren. If they didn't move on soon, there was a good chance he would die from starvation.
 
 He was very malnourished. Before the discovery of the meat, they had not seen food in 3 to 4 days. His existance was moment to moment. He didn't have time to ponder his past, nor plan for his future. His strength had withered away with his body, as did his memories. 
 
